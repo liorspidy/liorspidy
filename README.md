@@ -1,4 +1,5 @@
-# 💫 About Me:
+Hi there, I'm Lior! 👋
+
 🔭 I am a Software Engineer with a passion for Science and Technology.<br>🌱 I’m currently making my way to the top through Study and Hard work.<br><br>💬 Shoot me an Email or add me on Linkedin :)<br>
 
 
